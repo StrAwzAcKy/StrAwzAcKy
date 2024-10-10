@@ -5,7 +5,9 @@
 -  How to reach me ...
 __cerezakonkrema__ EN INSTAGRAM
 -  Pronouns: I am gender fluid. . /he/she/it
-──★ ˙🍓 ̟!!Fun fact:i like to roleplay (puedes escribirme para rolear)
+
+─★ ˙🍓 ̟!!Fun fact:i like to roleplay 
+(puedes escribirme para rolear)
 
 <!---
 StrAwzAcKy/StrAwzAcKy is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
